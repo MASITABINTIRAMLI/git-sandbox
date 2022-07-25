@@ -33,7 +33,7 @@ This is a melting face emoji
 Worry-free sandbox repository for learning.
 
 Jom pergi makan kat Lotus...mcm2 ada
-
+Hi Everyone. I'm Masita from Penang, Malaysia
 Cikgu Mohanavalli from SMK TUN SYED SHEH BARAKBAH.
 
 Fom Sungai Bakap
@@ -89,7 +89,6 @@ sel-sel otak terus berhubung🤣
 happy birthday
  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  
 Hai saya dari jawi
-
 
 happy birthday
 enjoy belajar
